@@ -12,4 +12,4 @@ Yuri Samuel
 ### Você pode entrar em contato: 
 -0000109648920xsp@al.educacao.sp.gov.br
 
-https://tenor.com/bM6ao.gif
+![](https://media1.tenor.com/m/6_ZGEH0RROYAAAAd/mr-cakes-foodie.gif)
